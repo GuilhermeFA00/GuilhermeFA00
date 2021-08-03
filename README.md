@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hey guys, my name is Guilherme,in addition to enjoying sharks, i also study and intend to live off it 👋
 
 <!--
 **GuilhermeFA00/GuilhermeFA00** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
